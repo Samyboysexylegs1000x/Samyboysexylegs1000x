@@ -1,4 +1,4 @@
-# *OPEN-SOURCE* __HIP HOP__ 
+# __OPEN-SOURCE__  *HIP HOP* 
 ## A Guide To Making Hip Hop In An Age Of CORPORATE GREED
 ### INTRO
 Peace & blessings to all! My name is Samy Esseghir and I'm a member of the [Noutéka collective and label](nouteka.co "Nouéteka.co"). Through [Spotify](https://open.spotify.com/artist/7EAiDXOAEasAq5u4bwnayr?si=aUJmWL1aRJSQJAo4xv7OUA&nd=1 "Noutéka Spotify page"), [YouTube](https://www.youtube.com/channel/UCrz7iesfdM-ZfXhDm_gNZ5w "Noutéka YouTube page"), and other streaming platforms, we've been putting out independent music since 2018 and taking many risks by not clearing our samples simply because of a lack of funds.
